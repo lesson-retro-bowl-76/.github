@@ -128,4 +128,3 @@ So, are you ready to build your dream team and lead them to glory? Retro Bowl is
 
 ---
 
-İstersen ben bu makaleye **SEO odaklı başlık önerileri + meta description (160 karakter)** de ekleyebilirim. İstiyor musun?
